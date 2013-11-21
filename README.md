@@ -1,4 +1,4 @@
 cococooooo
 ==========
 
-Cococooooo
+Historial, clasificación y otros datos de los cococooooos
